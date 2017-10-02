@@ -1,0 +1,2 @@
+# temizlik.html
+kişisel
